@@ -1,2 +1,2 @@
 # LaVillaDesCoeursBrises
-Projet de DEYRIS DELPHINE et NALOUTI NARJES
+Projet BARstar de DEYRIS DELPHINE et NALOUTI NARJES
